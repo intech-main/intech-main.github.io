@@ -1,1 +1,1 @@
-# intech-main.github.io
+# www.intech.org.pl
